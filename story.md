@@ -1,1 +1,1 @@
-once upon a time, in a forest, there lived a monkey on a almond tree, which was on the banks of a river. in the same forest there lived a crocodile and his wife
+once upon a time, in a forest, there lived a monkey on a almond tree, which was on the banks of a river. in the same forest there lived a crocodile and his wife. the monkey wanted to make a cloth for himself using crocodile's skin. so he slowly started to be friend with the crocodile by feeding him the almonds
